@@ -4,7 +4,6 @@
 
 ![2024-10-10-191827_hyprshot](https://github.com/user-attachments/assets/788ed882-25fb-4f74-930c-3e1b4af572e4)
 
-![2024-10-10-192151_hyprshot](https://github.com/user-attachments/assets/c2dfa278-dd23-4dd1-832a-88922ddb9a85)
 
 **Note**
 
